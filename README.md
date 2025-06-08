@@ -1,4 +1,4 @@
-[img](https://y2k.neocities.org/stamps2/002.png)
+[image](https://y2k.neocities.org/stamps2/002.png)
 
 
 
