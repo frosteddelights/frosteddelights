@@ -1,3 +1,3 @@
-![image](https://tenor.com/view/alice-madness-returns-amr-alice-madness-gif-7505664.gif) 
+![image](https://media1.tenor.com/m/9Zegcb41iIwAAAAd/frost-queen-cookie-gacha-animation.gif) 
 
 hi welcome to my github.. im so cool..
