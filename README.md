@@ -14,4 +14,4 @@
 ![image](https://allyratworld.com/images/cutiehoneyda.gif) ![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/cc04274d-b388-4c7c-824c-4b63c226839f/d1fvr6y-d58bca7e-4ade-4613-bf77-33608aea7b76.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2NjMDQyNzRkLWIzODgtNGM3Yy04MjRjLTRiNjNjMjI2ODM5ZlwvZDFmdnI2eS1kNThiY2E3ZS00YWRlLTQ2MTMtYmY3Ny0zMzYwOGFlYTdiNzYucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.tYi91zp59og_HEBEeVu7LrFLILPdqcSI3GTyC7f7Ew4)
 
 ![image](https://i.pinimg.com/1200x/89/e6/e8/89e6e8a841e1e093745093a317801f6d.jpg)
-Message to 'Catt-Food', if you want to talk to me then do so. Don't just block me straight after like you dont expect a response. That's just stupid. If you want to talk to me then actually do so and don't be stupid.
+Message to 'Catt-Food' if she still uses this, if you want to talk to me then do so. Don't just block me straight after like you dont expect a response. That's just stupid. If you want to talk to me then actually do so and don't be stupid.
